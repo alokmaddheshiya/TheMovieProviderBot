@@ -290,7 +290,7 @@ BOT WORKING PROPERLY"""
 ● <code>149₹</code> ➛ <u>ᴘʟᴀᴛɪɴᴜᴍ ᴘʟᴀɴ</u> » <code>6 month</code>
 ● <code>249₹</code> ➛ <u>ᴅɪᴀᴍᴏɴᴅ ᴘʟᴀɴ</u> » <code>1 year</code>
 
-💵 ᴜᴘɪ ɪᴅ - <code>shahid568@paytm</code>
+💵 ᴜᴘɪ ɪᴅ - <code>8090148438@fam</code>
 📸 ǫʀ ᴄᴏᴅᴇ - <a href='https://graph.org//file/168f55cc47d5a60d1eedd.jpg'>ᴄʟɪᴄᴋ ʜᴇʀᴇ ᴛᴏ ꜱᴄᴀɴ</a>
 
 ⚜️ ᴄʜᴇᴄᴋ ʏᴏᴜʀ ᴀᴄᴛɪᴠᴇ ᴘʟᴀɴ ʙʏ ᴜꜱɪɴɢ : /myplan
@@ -307,7 +307,7 @@ BOT WORKING PROPERLY"""
 ● <code>149₹</code> ➛ <u>ᴘʟᴀᴛɪɴᴜᴍ ᴘʟᴀɴ</u> » <code>6 month</code>
 ● <code>249₹</code> ➛ <u>ᴅɪᴀᴍᴏɴᴅ ᴘʟᴀɴ</u> » <code>1 year</code>
 
-💵 ᴜᴘɪ ɪᴅ - <code>shahid568@paytm</code>
+💵 ᴜᴘɪ ɪᴅ - <code>8090148438@fam</code>
 📸 ǫʀ ᴄᴏᴅᴇ - <a href='https://graph.org//file/168f55cc47d5a60d1eedd.jpg'>ᴄʟɪᴄᴋ ʜᴇʀᴇ ᴛᴏ ꜱᴄᴀɴ</a>
 
 ⚜️ ᴄʜᴇᴄᴋ ʏᴏᴜʀ ᴀᴄᴛɪᴠᴇ ᴘʟᴀɴ ʙʏ ᴜꜱɪɴɢ : /myplan
@@ -406,7 +406,7 @@ BOT WORKING PROPERLY"""
     
 ⚜️ ᴘᴀʏ ᴀᴍᴍᴏᴜɴᴛ ᴀᴄᴄᴏʀᴅɪɴɢ ᴛᴏ ʏᴏᴜʀ ᴘʟᴀɴ ᴀɴᴅ ᴇɴᴊᴏʏ ᴘʀᴇᴍɪᴜᴍ ᴍᴇᴍʙᴇʀꜱʜɪᴘ !
 
-💵 ᴜᴘɪ ɪᴅ - <code>shahid568@paytm</code>
+💵 ᴜᴘɪ ɪᴅ - <code>8090148438@fam</code>
 
 ‼️ ᴍᴜsᴛ sᴇɴᴅ sᴄʀᴇᴇɴsʜᴏᴛ ᴀғᴛᴇʀ ᴘᴀʏᴍᴇɴᴛ.</b>"""
 
@@ -428,7 +428,7 @@ BOT WORKING PROPERLY"""
 ● <code>149₹</code> ➛ <u>ᴘʟᴀᴛɪɴᴜᴍ ᴘʟᴀɴ</u> » <code>6 month</code>
 ● <code>249₹</code> ➛ <u>ᴅɪᴀᴍᴏɴᴅ ᴘʟᴀɴ</u> » <code>1 year</code>
 
-💵 ᴜᴘɪ ɪᴅ - <code>shahid568@paytm</code>
+💵 ᴜᴘɪ ɪᴅ - <code>8090148438@fam</code>
 📸 ǫʀ ᴄᴏᴅᴇ - <a href='https://graph.org//file/168f55cc47d5a60d1eedd.jpg'>ᴄʟɪᴄᴋ ʜᴇʀᴇ ᴛᴏ ꜱᴄᴀɴ</a>
 
 ⚜️ ᴄʜᴇᴄᴋ ʏᴏᴜʀ ᴀᴄᴛɪᴠᴇ ᴘʟᴀɴ ʙʏ ᴜꜱɪɴɢ : /myplan
